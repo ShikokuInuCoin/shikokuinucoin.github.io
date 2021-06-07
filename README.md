@@ -1,0 +1,1 @@
+# shikokuinucoin.github.io
